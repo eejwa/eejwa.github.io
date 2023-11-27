@@ -9,3 +9,8 @@ I am a research fellow in Geophysics and have been involved in many data-driven 
 ## Publications
 
 ## Interests/Hobbies
+
+## Contact
+
+E: jamie.a.ward@hotmail.co.uk
+L: https://www.linkedin.com/in/jamie-ward-13b6a7128/
